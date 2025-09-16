@@ -8,7 +8,6 @@
 
 - 📫 How to reach me **saurabh.singh807645@gmail.com**
 
-- ⚡ Fun fact **I think I can play with Data**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
